@@ -1,3 +1,5 @@
+Hi! My name is Sir Bob.
+
 Before using my Modules and other stuff. Let me show you some rules.
 
 
@@ -27,3 +29,13 @@ Before using my Modules and other stuff. Let me show you some rules.
 
 
 Well, that pretty much does it. See ya around! :)
+
+
+© (c) SirBobMan 2022 
+
+SirBobMan is a trademark of Wordn'Down®
+
+
+
+-------------------------------------------
+-_-
